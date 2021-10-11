@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LoneMythic, also just know as Mythic
+- 👀 I’m interested in computers and any customizable machine
+- 🌱 I’m currently learning 3D design, Pen Testing, Ethical Hacking
+- 📫 How to reach me on discord: Mythic#6519
+- 💬 Come join my community: discord.gg/PQPtma9ub2
+- 💻 I have Photoshop, Substance Painter, and Blender at my hands
